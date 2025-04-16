@@ -115,6 +115,6 @@
 
 ## Ссылка на скачивание APK
 
-[Download Cat Tinder APK 1.0.0](https://drive.google.com/file/d/1b1EKWI8PdH6p_DPVRX7hTLDTvBLYfqzi/view?usp=sharing)
+[Download Cat Tinder APK 2.0.0](https://drive.google.com/file/d/1b1EKWI8PdH6p_DPVRX7hTLDTvBLYfqzi/view?usp=sharing)
 
 ---
